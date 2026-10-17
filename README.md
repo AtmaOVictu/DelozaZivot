@@ -1,0 +1,2 @@
+# DelozaZivot
+Delo za druge
